@@ -1,1 +1,1 @@
-# the_angry_elder_game
+# 怒冠江公 The Angry Elder
